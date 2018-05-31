@@ -1,4 +1,4 @@
 ## Review Process  
-1.  Chapter 1 finish  
+1.  Chapter One
    2018.5.31  
 ***  
